@@ -17,11 +17,12 @@ It's not just Deuce and me (Zirio) developing the pack, it's all of us working t
 1. **Cowardly Sir Robin** - 1.050.000.000 ISK
 1. **s33ker** - 1.000.000.000 ISK
 1. **SniggWaffe** - 600.000.000 ISK [Corp]
-1. **Kr0nK** - 510.000.000 ISK (First to donate!)
+1. **Kr0nK** - 510.000.000 ISK (First to donate! \<3)
 1. **Alberdina** - 500.000.000 ISK
 1. **Sindarin Alliance** - 250.000.000 ISK
 1. **Astroco** - 250.000.000 ISK [Corp]
 1. **Eirellle** - 152.205.120 ISK
+1. **Razr Wolfgang** - 150.000.000 ISK
 1. **Kitaisu Lokiro** - 110.000.000 ISK
 1. **Byggare BoBson** - 101.000.000 ISK
 1. **deathlock2000** - 100.000.000 ISK
